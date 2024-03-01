@@ -1,0 +1,1 @@
+This is the first local Ghanaian Ndwom.txt file to ever commit to github. We hope other locals Ghanaian choir lovers and enthusiats hop on this and add to this as they also want to.Changes wile be checked and pull requests revieved as fast as possible. 
